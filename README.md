@@ -5,8 +5,7 @@
 - 📫 contact +55 19991422266
 - 😄 Mazita la he
 - ⚡ Kunakidza mazino etsuro
-
-(https://br.pinterest.com/pin/memes-engraados-os-mais-compartilhados-humor-chique--952792864897597041/)
+  
 
 <!---
 PedroCorrea1B/PedroCorrea1B is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
