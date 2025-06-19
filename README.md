@@ -1,4 +1,4 @@
-- 👋 Mhoro, zita rangu ndinonzi Pedroorrea1B
+- 👋 Mhoro, zita rangu ndinonzi Pedroorrea2A
 - 👀n  Ndinofarira mitambo nehunyanzvi
 - 🌱 Parizvino ndiri kudzidza zvidzidzo zvakawanda
 - 💞️ Ndiri kutarisira kushanda pamwe nekambani yehunyanzvi mune ramangwana
